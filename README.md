@@ -1,2 +1,4 @@
 # coursdecematin
 Fanfnir
+Yoruhime
+Ichigo
